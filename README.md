@@ -1,0 +1,2 @@
+# Ali
+Allah ka sher
